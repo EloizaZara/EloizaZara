@@ -1,16 +1,13 @@
-## Hi there 👋
+👇Minhas informações👇
 
-<!--
-**EloizaZara/EloizaZara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- oláaaaa💟, meu nome é Eloiza Rebeca Paes Zara
+- Atualmente tenho 14 anos👇
+- Estou solteira🤍
+- Estou no 1 ano A💖
+- Estudo no colégio Estadual Joaquim Maria Machado de Assis🙃
+- Moro em Santa Mariana/PR 
+- Sou Brasileira 🌠
+- Para entrar em contato comigo ^eloiza.zara@escol.pr.gov.br^
+- Eu amo gato pretooooo😍
+🧠
+- ![]![(̂•͈Ꙫ•͈⑅)̂ ୭](https://github.com/EloizaZara/EloizaZara/assets/172636910/67d5bfb5-6839-486f-841b-145db95b22a7)
